@@ -1,0 +1,1 @@
+&copy; Aquanite 2026.
